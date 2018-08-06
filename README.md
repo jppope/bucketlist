@@ -5,6 +5,7 @@ My bucketlist of things I want to do (dev and otherwise)
 
 * Build a real product that people use and I get paid for
 * Finish and really publish my last book
+* Build a level of wealth where I can choose 
 
 ## Learn
 
@@ -16,4 +17,8 @@ My bucketlist of things I want to do (dev and otherwise)
 * Dunk a baseketball
 * Heli Snowboard
 * Climb something hard... a tough climb
-* 
+* Run the actual marathon route in Greece
+
+## Family
+
+* Have an awesome family to enjoy life with
